@@ -1,4 +1,4 @@
-👋 Hello there, my name is Reid! Thanks for checking out my Github!
+👋 Hello there, my name is Reid. Thanks for checking out my Github.
 Here you will find some of my personal coding projects. I recently started my Github (April 2021),
 so I am still working on uploading past work and creating new projects to share! Most of my 
 coding projects are short and sweet. I like dabbling with a new framework/tool, and then moving
