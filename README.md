@@ -7,7 +7,7 @@ onto the next.
 👀 My hobbies/interests include
   - Software and Programming
   - Brazilian Jiu Jitsu
-  - Studying Languages (HSK 2 Mandarin Chinese)
+  - Studying Languages (HSK 2+ Mandarin Chinese)
   - Online PC Gaming
   
 📫 Feel free to contact me @ reid11programmer@yahoo.com or reid.witt@raytheon.com
