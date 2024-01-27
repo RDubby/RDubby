@@ -6,9 +6,9 @@ onto the next.
 
 👀 My hobbies/interests include
   - Software and Programming
-  - Brazilian Jiu Jitsu
-  - Studying Languages (HSK 2+ Mandarin Chinese)
-  - Online PC Gaming
+  - Photography
+  - Mandarin Chinese
+  - Fitness
   
 📫 Feel free to contact me @ reidmwitt@yahoo.com
 
