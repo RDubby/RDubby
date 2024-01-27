@@ -10,7 +10,7 @@ onto the next.
   - Mandarin Chinese
   - Fitness
   
-📫 Feel free to contact me @ slipandweave2@gmai.com
+📫 Feel free to contact me @ slipandweave2@gmail.com or slipandweave2@icloud.com
 
 <!---
 RDubby/RDubby is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
